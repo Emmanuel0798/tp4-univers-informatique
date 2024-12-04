@@ -1,0 +1,1 @@
+> [!Note] Pour ce qui est du Tag cloud, j'ai simplement copier/coller   
